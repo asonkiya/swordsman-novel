@@ -1,3 +1,4 @@
+# Chapter 2
 
 The two brothers made their way into a gray stone building that appeared no older than the children themselves, perhaps seven or eight years old. Built in the shape of a cross, it resembled the many places of worship that dotted the surrounding city, differing only in the abject lack of worship within its halls.
 
@@ -27,6 +28,8 @@ The first section was case notes. A merchant accused of falsifying weights. The 
 
 He read it again anyway.
 
+---
+
 The third section was different, not in style but in subject. A case where the evidence pointed clearly to one man, but two witnesses contradicted each other on a minor point. Most judges would have either dismissed the contradiction or let it cloud the whole proceeding, but Garson had traced it to its source, a difference in vantage point rather than in honesty, and then set it aside without ignoring it. The distinction mattered to him in a way that didn't need explaining.
 
 Jianxin sat up slightly.
@@ -34,6 +37,8 @@ Jianxin sat up slightly.
 He went back to the merchant case and read it again, slower. The elimination of possibilities had felt cold the first time through. Now it felt like something else. Garson wasn't being cold. He simply wasn't being anything else. There was no performance of fairness, no reaching toward a conclusion that felt right. The reasoning moved because it had nowhere else to go.
 
 He turned back to the land dispute and tried to find the place where Garson had made a choice rather than a deduction. He read it twice before he accepted that there wasn't one.
+
+---
 
 By the fourth case he had stopped looking for flaws, though he wasn't sure when that had happened. At some point his thoughts had stopped running alongside the text and started running inside it. He was no longer reading Garson's conclusions and evaluating them. He was watching Garson think, tracing the order in which possibilities were considered, the weight given to each one, the moment each was released.
 
@@ -43,6 +48,8 @@ Jianxin read it again. The same order, the same sequence of elimination. He felt
 
 He didn't notice that his grip on the manual had loosened, or that his sword hand, usually held close out of old habit, had drifted to his lap. He didn't notice his shoulders dropping, not into relaxation but into the mild forward curl of a man who had spent his hours at a desk for so long his body had learned to expect nothing else from itself.
 
+---
+
 The last section wasn't cases. It was something closer to notes, observations Garson had written at the margins of his own work, short and unaddressed to anyone.
 
 Jianxin read one:
@@ -51,11 +58,13 @@ Jianxin read one:
 
 He read it again, then again.
 
-His objections rose and dissolved before they could fully form. Each time he found an edge to pull at, the text had already accounted for it, not by addressing the objection directly but by having been constructed in a way that made it irrelevant. He would begin to think _but what about_ and find that three sections back Garson had quietly closed that door, and the next door, and the one after that. There was nothing to argue with. There was only the reasoning, moving forward, and the slow recognition that he had run out of places to stand outside it.
+His objections came slowly and left faster. He would find an edge to pull at and reach for it, and find that Garson had quietly closed that door three sections back, and the next door, and the one after that. He traced each one forward until it held and then let it go. There was nothing to argue with. There was only the reasoning, and the slow recognition that he had run out of places to stand outside it.
 
 The room had gone quiet in the way rooms go quiet when you stop hearing them. His thoughts were moving in a single direction now, the way water moves when the channel narrows, not faster but without the small eddies, the backward currents. Just forward.
 
 His posture had continued its slow drift without him. The precise alignment his instructor had spent years drilling into his spine was simply gone, not broken, just vacated. He sat with the settled, slightly collapsed weight of a man whose body had never been asked to be a weapon, his chin dipped, his breathing shallow and slow. Somewhere in the text he had become sedentary in the way that only years behind a bench produces, and he had not noticed any of it happen.
+
+---
 
 He read the note a final time.
 
@@ -71,7 +80,7 @@ That was the only word for it. Not thrust, not strike. The blade stopped an inch
 
 Then the clarity broke.
 
-It didn't collapse dramatically. It simply stopped being there, the way a word stops making sense if you repeat it too many times. One moment his thoughts were moving in that clean single channel and the next they weren't. He was aware of the room again, the weight of the manual in his other hand, the wrong angle of his wrist, the unfamiliar heaviness in his shoulders, the fact that he was sitting like a man twice his age and perhaps twice his weight as well.
+It didn't collapse dramatically. It simply stopped being there, the way a word stops making sense if you repeat it too many times. One moment his thoughts were moving in that clean single channel and the next they weren't. He was aware of the room again, the weight of the manual in his other hand, the wrong angle of his wrist, the unfamiliar heaviness in his shoulders, the fact that he was sitting like a man twice his age who had forgotten what it felt like to move.
 
 He straightened slowly and felt his spine remember itself.
 
@@ -79,11 +88,50 @@ His hands were steady. His breathing was even. But something in him felt like a 
 
 He looked at the wall where his blade had stopped. Then down at the manual.
 
-*So that's what it is.*  The shape of someone else's mind, worn briefly like a coat cut for a different body entirely.
+*So that's what it is.* Not agreement. Not possession. The shape of someone else's mind, worn briefly like a coat cut for a different body entirely.
 
 He rolled his shoulder and felt the familiar tension return, the trained readiness coming back like a tide.
 
 *What remains when everything that cannot be is removed.*
 
-He wasn't sure he believed it. But he understood now, in a way that had nothing to do with believing, exactly what it felt like to be someone who did. Jianxin slowly settled back into being himself and set the manual down on his desk. 
+He wasn't sure he believed it. But he understood now, in a way that had nothing to do with believing, exactly what it felt like to be someone who did. And he understood something else: that the strike had worked not despite Garson's body but through it, that the weight of an old judge's certainty moving through a young swordsman's arm had produced something neither of them could have made alone.
 
+He set the manual down on his desk.
+
+He wasn't sure what to do with that yet.
+
+He sat there for a while in the dark, turning it over. The strike had worked. That much was clear. But the way it had worked bothered him more than if it hadn't worked at all, because he didn't understand the mechanism well enough to reproduce it. It had arrived through Garson's mind, through the weight of a dead man's certainty moving through his arm, and that was interesting and also not a method he could rely on. He couldn't spend every fight reading a judge's case notes first.
+
+He reached across his desk and pulled out the other manual, the one he actually had been assigned. His weapons instructor's handwriting on the cover, the title in the formal characters that meant something like Foundations of the Sword Path. He'd read it three times already and found it competent and uninspiring in equal measure.
+
+He opened it now and read it differently.
+
+The first sections were what he remembered. Stances, grips, the mechanics of cuts and thrusts, the particular geometry of a blade meeting a blade. He skimmed through them with the same eye he'd turned on Garson, not looking at what was written but at the person doing the writing, and found an instructor who believed deeply in fundamentals and trusted them the way Tianyi trusted calculation. Useful to know. Not what he was looking for.
+
+He found what he was looking for near the back, in a section titled On the Nature of the Sword and Its Cultivation.
+
+He had read this section before and found it vague in the way that theoretical sections usually were. Now it landed differently.
+
+The sword, the text said, was not like the elemental Daos. Fire existed independent of any wielder. Water would be water whether a cultivator channeled it or not. The sword was nothing without the hand that held it, nothing without the will that moved the hand. In this sense the sword was less a force of nature than an extension of a person, the most direct expression available to a cultivator of what they actually wanted and believed and were.
+
+He read that twice.
+
+This was why, the text continued, there was no standardized path for sword enlightenment the way there was for Dao cultivation. The Daos were universal. A swordsman's path was entirely his own, shaped by who he was, and no two paths looked alike. What cultivation meant for a swordsman was the deepening of that expression, the closing of the distance between what the wielder was and what the blade said about them.
+
+Jianxin had known this. He'd known it since he was old enough to understand what the sword was, and it was a large part of why he'd loved it from the beginning, that particular intoxicating love that hadn't dulled a single day since he first held a blade. Tianyi's path was magnificent in its own way, a road that had been walked before, forces that existed independent of him, heights that were measurable and real. Jianxin didn't want that. He wanted the thing that had no ceiling he could see yet, that got more interesting the further into it he went, that felt every morning like the first morning of something he hadn't fully understood yet.
+
+He wanted to see where the blade ended. He wasn't sure it did.
+
+But Jianxin's road didn't exist yet. Whatever he was going to become with a blade, he was going to have to build it himself, out of whatever he was. That had always been the deal and he'd always been fine with it, had been more than fine with it, had felt something close to glee about it on the days when the sword moved through him like it knew something he didn't yet.
+
+Tonight had been one of those days, except bigger. Tonight he'd felt what the path actually was for the first time, not as a philosophy but as a physical fact. Garson's mind moving through his arm. The shape of someone else's will expressed through his blade. Understanding a person so completely that their intent could move through you the same way your own could.
+
+That was the thing. That was what the sword had been pointing at this whole time.
+
+He looked at the wall where the blade had stopped, and felt the particular pull of something that had just gotten significantly more interesting.
+
+The protection period wouldn't last forever. The instructors would leave and the institute would empty and he and Tianyi would step out into a world full of people he'd never met, each one a mind he'd never touched, each one carrying a sword that said something about them he didn't yet know how to read.
+
+He wanted to be ready for that. He'd been waiting for it the way you wait for something you can't quite see yet but can feel coming from a long way off, and he wanted to have more of this before he got there. More of whatever tonight was. More of the feeling that the path was opening rather than closing, that every step revealed ten more steps he hadn't known were possible.
+
+He set the manual back on the desk next to Garson's and sat for a while longer in the dark, grinning at nothing in particular, thinking about everything he didn't know yet and how much he was going to enjoy finding out.

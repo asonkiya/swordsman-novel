@@ -1,3 +1,4 @@
+# Chapter 5
 
 The arena at the institute's center was empty at this hour, the stained glass throwing its fractured colors across the stone floor without anyone to receive them. Jianxin had come early on purpose. He liked the space before other people filled it, when it was still possible to hear the building breathe.
 
@@ -49,7 +50,7 @@ A pause. "You've been counting."
 
 The next sequence Jianxin kept the threat alive, the unresolved opening on the right that Tianyi now had to keep accounting for. He could feel the web adjusting around it the same way the Go pattern had bent around the stone in the upper left, the distributed pressure that had made Tianyi's style so suffocating beginning to organize around a fixed point.
 
-Fixed points were legible. He'd learned that last night across a board game. It was turning out to be true here too.
+Fixed points were legible. He'd learned that last night across a board game, and it was good to know it held here too.
 
 Tianyi felt it the way he felt most things, as a variable that needed accounting for.
 
@@ -124,3 +125,5 @@ Jianxin demonstrated, which produced another sound he hadn't planned.
 "Fine." He let Tianyi take some of his weight, which was easier than he'd expected and more comfortable than he'd admit. "You're going to bring this up forever, aren't you."
 
 "Probably," Tianyi said, and walked him out through the fractured colored light, the stained glass warriors watching them go with their usual patience and indifference.
+
+

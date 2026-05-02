@@ -1,3 +1,4 @@
+# Chapter 3
 
 The bell found him already awake.
 
@@ -19,13 +20,13 @@ Tianyi looked at him sideways. "You didn't sleep."
 
 Tianyi let it go, which was the right call. The morning was cool and the city beyond the institute's walls was already making its noise, vendors and carts and the low hum of people with somewhere to be. Jianxin listened to all of it with the attention of someone who'd found something and was now noticing everything.
 
-The literature class met in a room lined with shelves that bowed under the weight of accumulated texts. The teacher, a thin man named Instructor Wen whose relationship to enthusiasm had been strained by decades of repetition, was already writing on the board when they arrived.
+The literature class met in a room lined with shelves that bowed under the weight of accumulated texts. The instructor was already writing on the board when they arrived, a thin man whose relationship to enthusiasm had been strained by decades of repetition.
 
-They were studying a poem. Old enough that its author had passed into the category of historical fact rather than person, cited and analyzed and reduced to a handful of biographical details that appeared at the front of every anthology. Instructor Wen read a stanza aloud in the voice of someone who had read it too many times to hear it anymore, then began moving through it line by line, asking questions about structure and imagery.
+They were studying a poem. Old enough that its author had passed into the category of historical fact rather than person, cited and analyzed and reduced to a handful of biographical details that appeared at the front of every anthology. He read a stanza aloud in the voice of someone who had read it too many times to hear it anymore, then began moving through it line by line, asking questions about structure and imagery.
 
-Tianyi answered most of them. His responses were precise and complete, the kind of answers that closed a question rather than opened it. When Instructor Wen asked what the poem's central image communicated, Tianyi said without hesitation that the withered tree in the final stanza represented the cyclical nature of decline, reinforced by the seasonal imagery in the second and fourth lines. Instructor Wen nodded and wrote something in his register.
+Tianyi answered most of them. His responses were precise and complete, the kind of answers that closed a question rather than opened it. When the instructor asked what the poem's central image communicated, Tianyi said without hesitation that the withered tree in the final stanza represented the cyclical nature of decline, reinforced by the seasonal imagery in the second and fourth lines. The instructor nodded and wrote something in his register.
 
-Jianxin, sitting one seat over, leaned toward the student beside him and murmured, "He's not wrong, but he's also not right," which earned him a confused look and no further conversation.
+Jianxin, sitting one seat over, leaned toward Tianyi and murmured, "He's not wrong, but he's also not right," which earned him a sideways look and no further conversation.
 
 He was looking at the poem and wondering why the tree was in winter rather than autumn.
 
@@ -37,23 +38,23 @@ It was the same thing he'd done with Garson. Not the same depth, nothing like th
 
 He'd assumed what happened with Garson was singular, the product of that specific text and that specific sleepless hour. But it had just happened again, in the middle of a literature class, reading a poem he'd been assigned. Which meant it wasn't the circumstances. It was something he did. Had apparently always done, without knowing to call it anything.
 
-That was interesting. That was very interesting.
+That was interesting. That was very interesting. And underneath the interest was something else he didn't examine too closely, something that felt like the particular relief of a person who has spent a long time being good at things without understanding why, and has just found the first edge of an explanation.
 
-He raised his hand before Wen had finished asking the next question.
+He raised his hand before the instructor had finished asking the next question.
 
-"The tree is in winter," he said, when Wen pointed at him, "not autumn. That's the thing."
+"The tree is in winter," he said, when the instructor pointed at him, "not autumn. That's the thing."
 
-Wen looked at him with the expression of a man being told something he hadn't asked about. "Yes."
+The instructor looked at him with the expression of a man being told something he hadn't asked about. "Yes."
 
 "Autumn would've been about watching something end. Winter means it's already over. The person who wrote this wasn't in the middle of losing something. They were on the other side of it." He paused. "The grief is old grief. The kind you've already made your peace with, mostly. Not entirely, but mostly."
 
 The room was quiet for a moment.
 
-"That is," Wen said carefully, "one interpretation."
+"That is," the instructor said carefully, "one interpretation."
 
 "What's yours?"
 
-Wen's expression suggested this was not how his classes usually went. Tianyi, to his left, had gone still in the way he went still when he was paying attention to something he hadn't expected.
+The instructor's expression suggested this was not how his classes usually went. Tianyi, to his left, had gone still in the way he went still when he was paying attention to something he hadn't expected.
 
 On the way out, Tianyi fell into step beside him. "That was unnecessary."
 
@@ -61,11 +62,11 @@ On the way out, Tianyi fell into step beside him. "That was unnecessary."
 
 "It wasn't what he asked."
 
-"He asked what the tree meant." Jianxin shrugged. "Wen already knew what the tree meant. I was answering the more interesting question."
+"He asked what the tree meant." Jianxin shrugged. "He already knew what the tree meant. I was answering the more interesting question."
 
 Tianyi looked at him for a moment. Something behind his expression recalibrated, the way it did when he'd encountered a variable he hadn't accounted for. He didn't say anything further, which told Jianxin more than most things Tianyi said out loud.
 
-Calligraphy met in a longer room with better light. The tables were wide and low, and each place had been set with paper, ink, and a brush before the students arrived. Their instructor, a woman named Instructor Bao, moved through the room with the authority of someone accustomed to being watched and not caring about it.
+Calligraphy met in a longer room with better light. The tables were wide and low, and each place had been set with paper, ink, and a brush before the students arrived. Their instructor moved through the room with the authority of someone accustomed to being watched and not caring about it.
 
 She placed a mounted piece at the front of the room. A single phrase, two characters, written in a hand that made Jianxin stop what he was doing entirely.
 
@@ -73,7 +74,7 @@ He understood why it was the model. The proportions were exact, the stroke order
 
 He wanted to know who.
 
-Instructor Bao told them to reproduce it.
+The instructor told them to reproduce it.
 
 Tianyi began immediately. His brush moved with the same quality as his answers in literature, correct and complete, each stroke arriving exactly where it was supposed to arrive. After three attempts his characters were nearly indistinguishable from the model. Technically. Looking at them next to the original was like looking at a copy of something and feeling the absence of whatever made the original worth copying.
 
@@ -83,7 +84,7 @@ He reached for the person behind the brushwork the way he'd reached for Garson, 
 
 He set the brush down and looked at the blank paper, then at his brush, then at the ceiling.
 
-The student beside him, a girl named Shu who had never done anything to deserve this, looked over. "Are you alright?"
+Tianyi looked over from his own paper. "Are you alright?"
 
 "I'm trying to find someone," he said, which did not clarify things.
 
@@ -93,47 +94,29 @@ Something shifted. Not much, nothing like the night before, more like a change i
 
 He couldn't have explained how he knew that. But when he picked his brush back up he pressed down in the same places, not because the form required it but because the person who had written this had needed to, and for a moment that was enough to work from.
 
-His characters were uneven. The proportions were off, the spacing inconsistent in the way that came from attention divided between technique and something underneath it. Instructor Bao moved through the room with corrections, the shorthand of someone who had given the same notes many times.
+His characters were uneven. The proportions were off, the spacing inconsistent in the way that came from attention divided between technique and something underneath it. The instructor moved through the room, pausing at Tianyi's work first with a brief nod, then crossing to Jianxin's.
 
-She stopped at Jianxin's paper longer than she stopped at the others. She didn't say anything for a moment. Then: "Your form needs work," and moved on.
+She looked at it for a moment without speaking. Then: "Your form needs work," and moved on.
 
-It wasn't praise. But it wasn't the same as the corrections she'd given everyone else, and he couldn't decide if that distinction meant anything or if he was looking for meaning in the pause of a woman who was simply deciding which note to write first. The uncertainty was new. He wasn't accustomed to not being able to read a room.
+It wasn't praise. But it wasn't the same as the nod she'd given Tianyi, and he couldn't decide if that distinction meant anything or if he was looking for meaning in the pause of a woman who was simply deciding which note to write first. The uncertainty was new. He wasn't accustomed to not being able to read a room.
 
-Formation analysis was where Tianyi stopped being ahead of the class and started being in a different class entirely.
+The next class brought a different instructor, a heavyset man who drew a qi-channeling array on the board and was walking through its logic when Tianyi answered a question he hadn't finished asking, identifying not only the answer but two failure points that would propagate from the primary disruption. The instructor wrote them down without acknowledging they were beyond the scope of what he'd asked.
 
-The instructor, a heavyset man named Instructor Guo, had drawn a formation on the board, a qi-channeling array used in defensive applications. He was walking through its logic when Tianyi answered a question Guo hadn't finished asking, identifying not only the answer but two failure points that would propagate from the disruption Guo hadn't gotten to yet. Guo wrote them down without acknowledging they were beyond the scope of what he'd asked.
+Jianxin tried his trick on the formation and found the same blankness he'd hit with the older sections of the elemental taxonomy, too many hands across too many years, the original intent buried so deep under accumulated refinements that there was nothing left to read. He gave up, switched to the ordinary approach, and spent the break between sessions catching up on what he'd missed. Tianyi spent the same break reading ahead and said nothing about it, which was somehow worse.
 
-Jianxin watched this and then looked at the formation and decided to try his new trick on it.
-
-A formation was designed, and design was decision, and decision came from someone who had wanted something. He tried to trace it the way he'd traced the calligrapher's certainty, looking for the weight underneath the geometry, the place where a person had pressed harder than the structure required.
-
-Every line he followed led nowhere. Not wrong, just empty. Worn smooth by too many hands until nothing remained to grip. The array had been refined across decades, each adjustment burying the original choices deeper, and what was left felt less like a design and more like the shape a design leaves behind after the person who made it is long gone. He kept reaching and kept finding the same blankness.
-
-He frowned at the board. Tried again from a different angle. Still nothing.
-
-He leaned toward Shu, who had the misfortune of sitting beside him across two consecutive classes. "Does this formation feel like anyone to you?"
-
-She stared at him. "What?"
-
-"Like, does it feel like it came from someone specific."
-
-"It's a formation."
-
-"Right," he said. "Right."
-
-Guo moved to a second formation. Jianxin stared at it, found nothing, and spent a few minutes in genuine bafflement before accepting that his trick had limits and switching to the ordinary approach. He managed it, but fell a full problem behind in the process and had to spend the break catching up, which was not how he usually spent breaks.
-
-Tianyi spent the same break reading ahead. When Jianxin dropped back into his seat with thirty seconds to spare, Tianyi glanced at him once and said nothing, which was somehow worse than if he'd said something.
-
-Elemental theory met in the largest room, tiered seating arranged around a demonstration space. Instructor Dahe stood with a qi-projection array already active and was presenting the foundational taxonomy when they arrived.
+Elemental theory met in the largest room, tiered seating arranged around a demonstration space. The instructor stood with a qi-projection array already active and was presenting the foundational taxonomy when they arrived.
 
 Fire and water first, the forces of ruin. Wind and earth, the omnipresent carriers. Lightning last, alone in its category.
 
-Tianyi was already past the taxonomy, asking questions about interaction coefficients that assumed fluency with everything Dahe had just presented. Dahe answered with the shift in posture of a teacher who has been given something worth thinking about.
+Tianyi was already past the taxonomy, asking questions about interaction coefficients that assumed fluency with everything the instructor had just presented. She answered with the shift in posture of a teacher who has been given something worth thinking about.
 
 Jianxin had stopped trying to find intent in things without a person attached. He knew what that blankness felt like now. So instead of reaching he just looked at the board and let himself think.
 
-_Fire: destruction, consumption, transformation through loss._ _Water: ruin, dissolution, the wearing away of what endures._ _Wind: presence, passage, the carrying of things from one place to another._ _Earth: sustenance, foundation, that which persists._ _Lightning: judgment, finality, the strike that does not linger._
+*Fire: destruction, consumption, transformation through loss.*
+*Water: ruin, dissolution, the wearing away of what endures.*
+*Wind: presence, passage, the carrying of things from one place to another.*
+*Earth: sustenance, foundation, that which persists.*
+*Lightning: judgment, finality, the strike that does not linger.*
 
 Fire gave warmth. Everyone knew this. A lit hearth in winter, a torch in a dark passage, these were fire as much as any conflagration. But warmth wasn't in the column.
 
@@ -145,17 +128,17 @@ He sat with this and couldn't get it to resolve. It wasn't wrong, that was the p
 
 It was something else. Like looking through something without knowing the thing you were looking through was there. Like the taxonomy had been built by people standing in a particular place, seeing what could be seen from there, and then the place itself had been forgotten, and what remained was just the view, mistaken for the whole sky.
 
-He couldn't finish the thought. It kept sliding away every time he got close. He wrote nothing for the last quarter of the class, which earned him a look from Dahe that he acknowledged with a small nod and then ignored.
+He couldn't finish the thought. It kept sliding away every time he got close. He wrote nothing for the last quarter of the class, which earned him a look from the instructor that he acknowledged with a small nod and then ignored.
 
-They walked back in the early evening, the light going amber across the institute's walls.
+They walked back in the early evening, the light going amber across the institute's walls. In a few months the protection period would end and the instructors would leave and the institute would become just a building. Jianxin had been aware of this the way you're aware of a distant weather front, present at the edge of everything without quite arriving. Today for some reason it felt closer.
 
 "So," Jianxin said. "Good day."
 
-Tianyi looked at him. "You answered a question no one asked, spent the break doing work you should have finished in class, and wrote nothing for the last half hour of Dahe's lesson."
+Tianyi looked at him. "You answered a question no one asked, spent the break doing work you should have finished in class, and wrote nothing for the last half hour of her lesson."
 
 "Good day," Jianxin said again.
 
-Tianyi was quiet for a moment. Then: "What were you thinking about in her class."
+Tianyi was quiet for a moment. Then: "What were you thinking about in that class."
 
 "The taxonomy."
 

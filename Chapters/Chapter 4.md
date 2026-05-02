@@ -1,3 +1,4 @@
+# Chapter 4
 
 The common room was small enough that the board took up most of the table. They'd played here so many times that sitting down had a quality of returning to something, the same two chairs, the same slight wobble in the table's left leg that neither of them had ever bothered to fix.
 
@@ -55,7 +56,9 @@ Jianxin placed another stone and felt Tianyi's attention shift slightly.
 
 There it was. Diffuse intention beginning to cohere around a point.
 
-He reached again, not for the familiar shape of his brother's mind but for this specific thing, this narrowing, and found it much easier to hold than the broad wash of Tianyi's general approach had been. Intent, he was learning, needed something to organize around. A mind spread across the whole board was fog. A mind beginning to focus was weather, and weather had direction, and direction could be read.
+He reached again, not for the familiar shape of his brother's mind but for this specific thing, this narrowing, and found it much easier to hold. Intent needed something to organize around. A diffuse mind was unreadable. A mind beginning to focus had direction, and direction could be read.
+
+He wasn't sure yet what to do with that. But it was the most interesting thing he'd found all week, which for Jianxin was as good as a reason.
 
 He watched Tianyi calculate. The stone wasn't an immediate threat, didn't block anything directly. But it sat where two of his attacking convergences would eventually need to meet, and somewhere in the deeper calculation that had registered. To execute his preferred strategy, he would need to deal with it. Dealing with it would cost moves he'd rather spend elsewhere. Not dealing with it would cost him the convergences he needed to close out the game.
 
@@ -90,3 +93,5 @@ He said it the way he said most things, without heat or frustration, as a straig
 "Maybe." Tianyi set the last stone in its bowl. "Or maybe I'll have closed the gap enough that it doesn't matter."
 
 He left without waiting for a response, which was also very Tianyi.
+
+Jianxin sat with the empty board for a moment. He wasn't thinking about the game. He was thinking about what it meant that reading Tianyi had required making Tianyi readable first, that understanding his brother had needed him to change the conditions rather than simply look harder. He didn't know yet whether that said something about Tianyi specifically or about people in general. He suspected it was both, and that figuring out which was going to take longer than one evening.
