@@ -1,6 +1,6 @@
 # Chapter 5
 
-The arena at the institute's center was empty at this hour, the stained glass throwing its fractured colors across the stone floor without anyone to receive them. Jianxin had come early on purpose. He liked the space before other people filled it, when it was still possible to hear the building breathe.
+The arena at the institute's center was empty at this hour, the stained glass throwing its fractured colors across the stone floor without anyone to receive them. Jianxin had come early on purpose. He liked the space before Tianyi arrived, when it was still possible to hear the building breathe.
 
 Tianyi arrived exactly when he said he would, which was always.
 
@@ -30,13 +30,13 @@ Tianyi didn't take it. He was too precise for that.
 
 But something in the web's shape shifted slightly around that angle. He had seen it. He'd registered it as a possibility, and the registration had cost him a fraction of the attention he'd been using to manage the water pressure on the left.
 
-Jianxin stepped into the water.
+Jianxin stepped into the water. He'd seen it coming and let it come anyway, wanting to know exactly how it moved.
 
 It caught his back foot and his stance stuttered. Tianyi's wind came through the gap and struck across his forearm, controlled but real, and Jianxin felt it the way you feel evidence. Sharp and particular and now part of the record.
 
 He rolled his arm and kept going.
 
-What followed was the best exchange they'd had. Jianxin pushing, Tianyi holding and redirecting, the rhythm faster than the garden spar had been, both of them a little more serious than the occasion probably called for. Jianxin's blade found Tianyi's guard three times in quick succession, two of them turned aside cleanly and the third glancing off his shoulder before earth qi absorbed the force. Tianyi's lightning came once, singular and decisive, aimed at the moment Jianxin's footwork crossed, and Jianxin moved just enough that it caught his side instead of his center, the force radiating through his ribs and stealing a breath.
+What followed was the best exchange they'd had. Jianxin pushing, Tianyi holding and redirecting, the rhythm faster than the garden spar had been, both of them a little more serious than the occasion probably called for. Jianxin's blade found Tianyi's guard three times in quick succession, two of them turned aside cleanly and the third glancing off his shoulder before earth qi absorbed the force. Tianyi's lightning came once, singular and decisive, aimed at the moment Jianxin's footwork crossed. Jianxin read it early enough to have moved fully clear, and didn't, letting it catch his side instead of his center because he wanted to know how committed Tianyi was willing to get with the lightning. The force radiated through his ribs and stole a breath. Committed enough, then.
 
 He stepped back and took that breath, and Tianyi let him, which was generous and slightly condescending and very Tianyi.
 
