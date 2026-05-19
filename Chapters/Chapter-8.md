@@ -20,7 +20,7 @@ Jianxin looked at him. "Good morning to you too."
 
 "I really don't." Jianxin tilted his head. "Why don't you explain it to me."
 
-Tianyi looked at him with the particular patience of someone who has decided not to be played. "You figured it out. Probably years ago. That your path isn't bound by the same restriction mine is, that the outside Dao doesn't threaten you the way it threatens me, that you could go directly to the clan's territory or anywhere else and it wouldn't matter." He said it without inflection. "I've known for a while that you knew. So stop pretending you don't."
+Tianyi looked at him with the patience of someone who has decided not to be played. "You figured it out. Probably years ago. That your path isn't bound by the same restriction mine is, that the outside Dao doesn't threaten you the way it threatens me, that you could go directly to the clan's territory or anywhere else and it wouldn't matter." He said it without inflection. "I've known for a while that you knew. So stop pretending you don't."
 
 Jianxin held the look for another moment, then let it go. "Around year four," he said. "Give or take."
 
@@ -36,7 +36,7 @@ Jianxin looked at him for a moment. Then he stood up and picked up his bag. "Com
 
 "I didn't decide anything." He said it simply, without drama. "There wasn't a decision. You're my brother. Where you go I go, that's just what's true. The clan can have opinions about it."
 
-Tianyi was quiet for a long moment. Outside the window the sky had begun to lighten, the particular deep blue shifting toward something paler. He picked up the sealed package from the desk.
+Tianyi was quiet for a long moment. Outside the window the sky had begun to lighten, the deep blue shifting toward something paler. He picked up the sealed package from the desk.
 
 "You could have gone to see our parents," he said. "Years ago."
 
@@ -46,7 +46,7 @@ Tianyi was quiet for a long moment. Outside the window the sky had begun to ligh
 
 Jianxin thought about it honestly. "It will, eventually. When I think about it too long." He shrugged. "I try not to think about it too long."
 
-Tianyi looked at him with the particular attention he reserved for things he was trying to understand fully. Then he tucked the package into his bag and shouldered it.
+Tianyi looked at him with the attention he reserved for things he was trying to understand fully. Then he tucked the package into his bag and shouldered it.
 
 "I'll pay you back," he said. "For this."
 
@@ -58,7 +58,7 @@ Tianyi looked at him with the particular attention he reserved for things he was
 
 They walked out together, down the corridor that had been theirs for seven years, past the common room where the Go boards sat dusty and unplayed on their shelf, through the main hall where the morning light was just beginning to come through the stained glass windows, painting its fractured colors on the stone floor one last time. Jianxin didn't stop to look at it. He'd looked at it enough.
 
-The senior instructor was waiting in the courtyard. He had the particular stillness of someone who has been waiting comfortably and would continue to wait as long as necessary. In his hand was a second sealed package, smaller than the one the clan had sent Tianyi.
+The senior instructor was waiting in the courtyard. He had the stillness of someone who has been waiting comfortably and would continue to wait as long as necessary. In his hand was a second sealed package, smaller than the one the clan had sent Tianyi.
 
 He held it out to Jianxin.
 

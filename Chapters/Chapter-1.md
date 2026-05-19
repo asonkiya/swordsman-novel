@@ -36,7 +36,7 @@ Then the woman drew breath.
 
 It came slowly and with certainty. Her limbs uncurled. Her skin returned to fullness. Her essence surged. The seals that had bound her cultivation fell away like frost beneath sunlight. She stood.
 
-Though her expression remained calm, her aura was scattered. Her movements were uneven, as if a seasoned athlete had been forced to command a body it no longer remembered.
+Though her expression remained calm, her aura was scattered. Her movements were uneven, as if a seasoned athlete had been forced to command a body she no longer remembered.
 
 Her voice emerged quiet and steady. Even in weakness, her thoughts were not of herself.
 
@@ -122,7 +122,7 @@ Before he could recover, Tianyi’s palm struck gently against his shoulder. A p
 
 For a long moment, there was only the sound of rustling leaves and the faint drip of water.
 
-Jianxin stared down at his trembling hands, his grip still tight around his sword. His breathing steadied, but his heart did not. Though one would expect uncertainties and disappointment to creep their way into the mind of the defeated, Jianxin's mind was far too busy trying to understand why his sword strike had failed to allow such petty thoughts to draw his focus. 
+Jianxin stared down at his trembling hands, his grip still tight around his sword. His breathing steadied, but his heart did not. His mind was already turning over why the strike had failed.
 
 Across from him, Tianyi stood still, his expression unreadable. The Dao around him quieted, returning to stillness.
 

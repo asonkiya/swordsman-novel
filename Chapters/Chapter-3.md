@@ -38,7 +38,7 @@ It was the same thing he'd done with Garson. Not the same depth, nothing like th
 
 He'd assumed what happened with Garson was singular, the product of that specific text and that specific sleepless hour. But it had just happened again, in the middle of a literature class, reading a poem he'd been assigned. Which meant it wasn't the circumstances. It was something he did. Had apparently always done, without knowing to call it anything.
 
-That was interesting. That was very interesting. And underneath the interest was something else he didn't examine too closely, something that felt like the particular relief of a person who has spent a long time being good at things without understanding why, and has just found the first edge of an explanation.
+That was interesting. That was very interesting. And underneath the interest was something else he didn't examine too closely, something like the relief of a person who has spent a long time being good at things without understanding why, and has just found the first edge of an explanation.
 
 He raised his hand before the instructor had finished asking the next question.
 

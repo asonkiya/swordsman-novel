@@ -32,7 +32,7 @@ Jianxin looked at it. "It smells wrong."
 
 "Yes."
 
-He ate it. It tasted like it smelled, which was consistent if not pleasant, and after a few minutes he could feel the qi beginning to move through the bruised tissue with the particular warmth of something doing what it was supposed to do. He set the bowl down and stretched his arm carefully, testing the range.
+He ate it. It tasted like it smelled, which was consistent if not pleasant, and after a few minutes he could feel the qi beginning to move through the bruised tissue with a warmth that meant it was doing what it was supposed to do. He set the bowl down and stretched his arm carefully, testing the range.
 
 Better. Still sore, but better.
 
@@ -118,7 +118,7 @@ Tianyi looked at him. "That's your cultivation philosophy."
 
 Jianxin had already looked back at the ceiling, thinking about something else. Tianyi watched him for a moment, and then looked away.
 
-Outside the single window the evening had gone fully dark, the sky the particular deep blue of a clear night without stars, the way the sky always was on this world.
+Outside the single window the evening had gone fully dark, the sky the deep starless blue of a clear night, the way the sky always was on this world.
 
 They both knew what the years meant. What they were waiting for, what had to happen before the outside world became something they could enter. The Dao out there was dense and established and old, and Tianyi's physique needed to be its own thing first, rooted enough that the outside couldn't simply overwrite it. That was what the instructors had told them. That was why they were here instead of out there, why the clan had built this whole place around two children and then left them in it.
 

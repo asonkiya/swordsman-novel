@@ -34,7 +34,7 @@ Fine. He stopped reaching and just played.
 
 For several moves he let himself settle back into the game as he'd always known it, reading the board rather than his brother, responding to positions rather than intentions. It felt like returning to solid ground. He was good at this. He was very good at this, in the way that didn't come from calculation but from something more like fluency, the board speaking a language he'd been absorbing since childhood.
 
-Tianyi built his web across the middle game with the same patience he brought to everything. No aggression, no overcommitment. Lines of pressure extending across multiple regions simultaneously, each one individually answerable but collectively beginning to weigh. Jianxin had grown up inside that web. He knew its texture the way you know the particular quality of a recurring dream.
+Tianyi built his web across the middle game with the same patience he brought to everything. No aggression, no overcommitment. Lines of pressure extending across multiple regions simultaneously, each one individually answerable but collectively beginning to weigh. Jianxin had grown up inside that web. He knew its texture the way you know a recurring dream.
 
 He placed a stone in the upper left corner that looked like territory consolidation.
 

@@ -128,7 +128,7 @@ Tonight had been one of those days, except bigger. Tonight he'd felt what the pa
 
 That was the thing. That was what the sword had been pointing at this whole time.
 
-He looked at the wall where the blade had stopped, and felt the particular pull of something that had just gotten significantly more interesting.
+He looked at the wall where the blade had stopped, and felt the pull of something that had just gotten significantly more interesting.
 
 The protection period wouldn't last forever. The instructors would leave and the institute would empty and he and Tianyi would step out into a world full of people he'd never met, each one a mind he'd never touched, each one carrying a sword that said something about them he didn't yet know how to read.
 
