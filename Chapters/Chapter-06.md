@@ -32,7 +32,7 @@ Jianxin looked at it. "It smells wrong."
 
 "Yes."
 
-He ate it. It tasted like it smelled, which was consistent if not pleasant, and after a few minutes he could feel the qi beginning to move through the bruised tissue with a warmth that meant it was doing what it was supposed to do. He set the bowl down and stretched his arm carefully, testing the range.
+He ate it. It tasted like it smelled, unpleasant and consistent, and after a few minutes he could feel the qi beginning to move through the bruised tissue with a warmth that meant it was doing what it was supposed to do. He set the bowl down and stretched his arm carefully, testing the range.
 
 Better. Still sore, but better.
 
@@ -76,7 +76,7 @@ Jianxin was quiet for a moment. Then he grinned. "First time I've beaten you, by
 
 "At Go. And that's different." He settled back against the wall. "This is the first time I've beaten you at something you're actually supposed to be better at."
 
-Tianyi said nothing, which was louder than most things Tianyi said.
+Tianyi said nothing.
 
 "I'm going to remember this for a very long time," Jianxin said.
 
@@ -88,7 +88,7 @@ Tianyi said nothing, which was louder than most things Tianyi said.
 
 "Just so we're clear."
 
-"We're clear." Tianyi's expression hadn't changed, but something at the edge of it had, the faint quality of someone enduring something they've already accepted as inevitable. "Are you done."
+"We're clear." Tianyi's expression hadn't changed, but something at the edge of it had, the look of someone enduring something they've already accepted as inevitable. "Are you done."
 
 "Probably not." Jianxin looked at the ceiling. "When we start cultivating properly, at sixteen, what do you think it actually feels like?"
 
@@ -118,7 +118,7 @@ Tianyi looked at him. "That's your cultivation philosophy."
 
 Jianxin had already looked back at the ceiling, thinking about something else. Tianyi watched him for a moment, and then looked away.
 
-Outside the single window the evening had gone fully dark, the sky the deep starless blue of a clear night, the way the sky always was on this world.
+Outside the single window the evening had gone fully dark, the sky the deep starless blue it always was on this world.
 
 They both knew what the years meant. What they were waiting for, what had to happen before the outside world became something they could enter. The Dao out there was dense and established and old, and Tianyi's physique needed to be its own thing first, rooted enough that the outside couldn't simply overwrite it. That was what the instructors had told them. That was why they were here instead of out there, why the clan had built this whole place around two children and then left them in it.
 
@@ -128,12 +128,14 @@ Tianyi looked at him. "You have time."
 
 "We have time," Jianxin said.
 
-Tianyi looked at him for a moment, and then briefly something in his expression did what it rarely did, softened past the precision into something quieter and less guarded. It didn't last long. But Jianxin saw it, and stored it away the way he stored everything, in a place he'd be able to find it later.
+Tianyi looked at him for a moment, and then briefly something in his expression did what it rarely did, softened past the precision into something quieter and less guarded. It didn't last long. But Jianxin saw it, and stored it away in a place he'd be able to find it later.
 
 "Get some sleep," Tianyi said. "Your shoulder needs it."
 
 Jianxin lay back on the cot, careful of his shoulder, and looked at the ceiling. The infirmary was quiet around them.
 
 Seven years.
+
+He thought about cities. He'd read about them, the crowds and the weight of a thousand different lives pressing up against each other, the arguments and transactions and small moments of kindness and cruelty that happened in every street on every ordinary day. He'd built sword arts from the people in books. He'd been reading the same four instructors for years and getting less from them each time. Out there were people he'd never read, intents he'd never felt, the full unmanageable texture of a world that had been doing things without him since before he was born.
 
 He closed his eyes, and thought about everything he didn't know yet, and how much he was going to enjoy finding out.

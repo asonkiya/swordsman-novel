@@ -1,18 +1,24 @@
 # Chapter 10
 
-Tianyi's hand came down on Jianxin's arm before he'd taken three steps.
+Tianyi's hand came down on Jianxin's arm and stopped him mid-stride.
 
 "Wait."
 
 Jianxin stopped. Through the trees the fight continued, the ring of blades, the grunts of people who were working hard and getting tired, one of the escorts taking a hit across the shoulder and adjusting his stance without going down. He was good. Both of them were good. It wasn't going to matter.
 
+Jianxin's weight was already forward.
+
 Tianyi was already reading. "Thirty-two visible, possibly more in the trees. The escorts are seventh level Qi Refining, trained, disciplined, the real thing. The bandits range from fourth to seventh but you can see the difference. Worse equipment, looser footwork, they're relying on numbers over technique." He tracked the back of the group. "Someone on a horse at the far edge. Hasn't drawn his weapon. The ones hanging back keep looking at him."
 
-Jianxin waited.
+Jianxin watched an escort get pushed back three steps and recover. The man with the shoulder wound was slowing.
 
 "The carriage is what they came for. The escorts know it, they're not trying to push through, just hold the line around it."
 
 That was the whole analysis. He said nothing further.
+
+Jianxin looked at him.
+
+"Done?" he said.
 
 The carriage door opened.
 
@@ -26,9 +32,15 @@ Tianyi looked at Jianxin.
 
 Tianyi moved toward the carriage. Jianxin moved toward the bandits, and the hand left his arm.
 
+He was already grinning. His shoulders dropped, his weight shifted forward onto the balls of his feet.
+
+---
+
 Tianyi came in from the side, unhurried, which confused the three men who peeled off to intercept him. By the time they understood that unhurried didn't mean slow, the earth beneath the carriage had shifted, anchoring its wheels, and a formation of wind qi had settled around it like a wall that wasn't quite visible. He dealt with the three men efficiently and took up a position between the carriage and the main body of the fight.
 
 The woman watched him from the carriage door. He didn't look at her. He was busy.
+
+---
 
 The moment Jianxin stepped onto the road the world before his eyes changed.
 
@@ -38,29 +50,31 @@ The big one at the front was aimed past the escorts like they were inconvenient 
 
 Jianxin's sword came out and he moved.
 
-He did not fight the way the escorts fought. He did not fight the way anyone fought, holding ground, pushing through, trading weight against weight. He moved through the spaces between intentions, the brief silences where one will had finished and the next had not yet begun, and in those silences his blade was already there, already done, the way a river finds the lowest ground without deciding to.
+He moved the way water moves, not through resistance but around it, finding the momentary stillpoints between one current and the next, the brief silences where one will had finished and the next had not yet begun. His blade arrived in those silences. It was already done before the men knew he'd been there.
 
-The young bandit saw him in the last moment and tried to turn. The turning came too late. One.
+The young one saw him at the last moment. One.
 
-Then Jianxin was elsewhere, stepping past a thrust that hadn't committed yet, and an old general's footwork carried him into the gap it left. Two. He didn't stop moving. A scholar-swordsman's guard caught something coming from the right, redirected it without force, his eyes already on the next current. Three men in and the dance hadn't broken stride.
+Then he was elsewhere, slipping past a current that hadn't crested yet, and an old general's footwork carried him through the gap it left. Two. A scholar-swordsman's guard redirected something coming from the right without force, without pause, his eyes already reading the next flow. Three.
 
-A patient woman's arc moved his sword arm and a third man sat down heavily in the road.
+A patient woman's arc moved his sword arm. Four.
 
-He took one hit, a glancing blow from someone whose body had moved on reflex when Jianxin appeared at the edge of his vision. Reflex had no intent behind it and intent was the only thing he could see. He noted it and moved.
+He took one hit, a glancing blow from someone whose body had moved on reflex. Reflex had no current in it, no direction he could read and step around. He noted it and moved.
 
-Then the formation shifted and the music changed.
+Then the rhythm changed.
 
-Six men whose currents had been separate became one current, a tide moving together, each intent reinforcing the next, and the gaps he had been dancing through closed like a fist. The resistance was suddenly present and coherent and pushing back.
+Six currents that had been separate drew together into one, a tide where there had been a river, and the stillpoints he'd been moving through closed. The flow pressed back against him from every direction at once, coherent and insistent, no gaps between the beats.
 
-He stepped back.
+He stopped. Let the tide push against him without pushing back. Felt the shape of it.
 
-Tianyi's wind came through in two lines, not as a strike but as a question asked of the formation, and two of the six had to answer it, their intents pulled sideways, and the fist opened.
+Tianyi's wind arrived in two lines, not a strike but a question, and two of the six had to answer it. Their currents pulled sideways. The tide lost its coherence for a single beat.
 
-Jianxin went through the opening like water through a crack.
+Jianxin went with it.
 
-The formation broke into pieces and pieces he could read and the dance resumed and the road told its story in fallen men and the man on the horse at the back was already making the calculation Jianxin had read on the left-flank man's face before the fight had properly started.
+He moved through the opening the way water moves through a crack in stone, not forcing, just finding the line of least resistance and following it all the way through. The six became five became three became separate currents again and separate currents he could read and reading them he moved and the road received what the road received.
 
-They broke. One person decided and the decision moved faster than fear through the rest of them. The horse turned. Someone ran. Then a dozen were running and the ones still standing were looking at Jianxin with the same expression and there was no intent in it anymore, only absence, and absence meant they were already gone even if their feet hadn't caught up yet.
+The man on the horse made the same calculation Jianxin had read on the left-flank man's face before the fight had properly started.
+
+They broke. One current turned and the rest followed, the tide reversing faster than it had formed. The horse turned. Someone ran. Then the currents were all running the same direction, away, and the ones still standing had nothing left in them, only the absence of current, and absence meant they were already gone even if their feet hadn't caught up yet.
 
 The last of them found the treeline.
 
@@ -84,9 +98,9 @@ Then the assessment resumed.
 
 "Sixteen," Jianxin said.
 
-Up close she was older than she had looked from the treeline. Not much, eighteen or nineteen, but she had the quality of someone who had been managing things for long enough that it showed in how they held themselves. She looked at him, then at Tianyi, then back at the road where fourteen men were on the ground. She didn't say anything for a moment.
+Up close she was older than she had looked from the treeline. Not much, eighteen or nineteen, but she had been managing things for long enough that it showed in how they held themselves. She looked at him, then at Tianyi, then back at the road where fourteen men were on the ground. She didn't say anything for a moment.
 
-"Are you heading somewhere in particular?" she said. "If I'm not overstepping."
+"Are you heading somewhere?" she said. "If I'm not overstepping."
 
 "Northeast," Tianyi said. "Toward habitation."
 
@@ -102,6 +116,8 @@ Tianyi looked at the road and said nothing, which meant yes.
 
 "We can do that," Jianxin said.
 
+---
+
 They walked while the escorts saw to the carriage and the horses. Maren stood to one side watching them work, and Jianxin stood nearby watching her.
 
 She had a specific way of organizing the space around her. When the escort with the shoulder wound started to explain something she already knew, she let him finish before redirecting him precisely, without impatience. When she looked at the carriage she was counting something, damage, time before dark, something with numbers in it. When she spoke to the escorts it was always with a destination in mind, each sentence doing one thing and stopping.
@@ -114,57 +130,79 @@ He'd felt this once before. A dead man's case notes, a frictionless quality that
 
 He didn't have a name for it. He filed it and kept watching.
 
-The carriage began to move and Maren walked beside it and the brothers fell into step without being asked. The forest gave way to cleared land, the slope of the terrain making itself felt underfoot.
+---
 
-Tianyi was paying no attention to Maren. He was reading the road, the cleared land, the quality of the soil at the verge, the way the light sat on the terrain. Occasionally he would say something brief and factual, the road was well-maintained for this distance from the city, the cleared land showed signs of irregular farming, the drainage patterns suggested this area flooded seasonally, and Maren would glance at him with the expression of someone filing an unexpected data point.
+The road to Aldenmere took three days.
 
-Jianxin watched her questions on the road the way he'd watched Garson's case notes. She wasn't asking out of curiosity. She was assembling. Each question fitted into something she was building toward a conclusion she'd already partly reached, where had they come from, what was their training, did they have somewhere to stay. She let gaps open in the conversation and watched what they chose to fill them with. When Jianxin gave an answer she didn't pursue it immediately but waited.
+The first evening they made camp at a rest stop where two merchant convoys had already settled for the night, half a dozen wagons arranged around a central fire, the drivers and guards sharing food and road information with the easy familiarity of people who used the same stops regularly. Jianxin drifted toward them before the carriage had fully stopped. Maren watched from a distance as he fell into conversation with a wagon driver, then the driver's guard, then somehow the cook from the second convoy who had come over to borrow salt and stayed for an hour. He learned their names. He learned their routes and their cargo and the temperament of the road ahead, and he brought all of it back to Tianyi and Maren as casually as if he'd simply looked it up somewhere.
 
-He gave her honest answers because he didn't see a reason not to, and watched what she did with the honesty. She didn't relax when he was honest. She recalibrated.
+Maren watched this from where she stood. She said nothing.
 
-Walking alongside the carriage, Maren was doing her own accounting.
+Tianyi, for his part, had spent the same hour reading the terrain around the rest stop with the attention he gave to everything, the drainage, the soil composition, the way the trees had grown or failed to grow along the road's edge. He said nothing to the merchants. Two of the drivers approached him with questions about a formation marker they'd seen on the road and couldn't interpret. He answered both questions in the time it would have taken most people to understand the first one. They thanked him and left looking slightly unsettled. He didn't notice.
 
-Two of them. Sixteen, which was younger than they looked when they moved but consistent with what she'd seen in the treeline, that quality of people who hadn't learned yet to know their own capability. The one with the sword had done something in the fight she didn't have a clean category for. She'd watched trained fighters since childhood, had watched her family's guards spar, had seen the difference between someone who had learned to fight and someone who fought well. What he'd done was neither of those things. He'd moved through the bandits like he already knew where they were going before they went there, and the men had broken not because they were overwhelmed but because something had gone out of them.
+Maren looked at the two of them and kept her thoughts to herself.
 
-The other one was quieter and stranger in a different way. The work he'd done around the carriage had required knowledge she wouldn't have expected from someone their age, and he talked about the terrain the way her family's administrative staff talked about tax records, not with interest but with the calm precision of someone for whom information was just the material you worked with.
+---
 
-No sect. No affiliation. No plan beyond northeast.
+The second day a wheel failed on a loaded wagon two hundred meters ahead, blocking the road. The convoy driver climbed down cursing and the traffic behind him began to back up. Jianxin had already jumped down from the carriage roof and was walking toward the problem.
 
-She turned this over. They were either exactly what they appeared to be or not, and she had learned to hold both possibilities at once until one stopped fitting.
+What he did there, Maren would think about later. He didn't fix the wheel. He talked to the driver. Inside two minutes he had the man laughing despite himself, and the men from the other wagons had started helping without being asked, and Tianyi had walked up, assessed the wheel and the ground and the weight distribution of the load, and made a small precise adjustment with earth qi that seated everything correctly. The whole obstruction cleared in the time it would have taken to argue about whose responsibility it was.
 
-What she needed currently: her regular guards were adequate for ordinary work and inadequate for anything that required real capability. The situation with her uncle was going to require real capability before it was finished, and she didn't know yet when that would be or what form it would take. Having two people like this available, people who could do what they'd just done and who had no existing allegiances in the city, was worth more than their likely asking price.
+The driver shook Jianxin's hand and called him by name. He'd had maybe four minutes of conversation.
 
-The risk was unknown backing. They were clearly from somewhere. The quality was too consistent for pure natural talent with no training. But unknown backing could be managed if the backing itself didn't have interests in Aldenmere, and nothing about them suggested it did.
+Maren fell into step beside Jianxin as they walked on.
 
-She looked at the one with the sword, who was looking at her.
+"How do you do that," she said.
 
-He'd been looking at her for most of the walk, she realized. Not rudely. Not the way young men usually looked. More the way she looked at accounts, trying to understand what the numbers meant.
+"Do what."
 
-"Your swordsmanship," she said. "I was watching from the carriage. I've seen trained fighters. What you were doing was something else."
+She considered how to phrase it. "He was angry when you walked up."
 
-"It's something I've been developing," he said.
+"He'd broken a wheel. He had reasons."
 
-She waited to see if there was more. There wasn't.
+"Most people would have waited for him to finish being angry."
 
-"And you." To the other one. "The work around the carriage. Where did you learn formation theory at your age?"
+Jianxin looked at her with a mild expression and said, in the flat precise tone of someone doing an impression of his brother: "That seems inefficient."
 
-"Reading," Tianyi said, and left it there.
+She looked at him for a moment. Then she returned to the carriage without saying anything further, and Jianxin watched her go and found her more interesting than he had yesterday.
 
-She looked at the city on the horizon. The noble quarters elevated, the merchant tier below, the lower districts at the base. Everything in its place.
+---
 
-She had decided before they reached the road into the city.
+That evening Maren walked alongside rather than riding. The road had improved and the light was good and she had been sitting for two days and Jianxin suspected there was also something she was working out.
 
-"I have work," she said. "My family has interests that require capable people, escort duties, resolving disputes among our vassals, the occasional more complicated matter. The pay is fair and the accommodation is in the city." A beat. "There is also a physician on staff."
+She asked him questions as they walked. Differently than the day before, less assembly, more actual curiosity, or at least more willingness to let the curiosity show. Where had he learned the sword. How long. What did it feel like when the formation came together against him and he stepped back.
 
-Jianxin thought about four days of forest with nothing to read.
+He answered honestly, which he'd been doing since they met, and watched what she did with each answer. She didn't comment on most of them. She absorbed them, adding them to something she was building that he couldn't quite see the shape of yet.
+
+"You don't have anywhere to be," she said. It wasn't a question.
+
+"Not specifically."
+
+"And your brother."
+
+"Same."
+
+She walked for a moment. "What are you planning to do."
+
+"Find out what the world is like," Jianxin said. "We've been somewhere small for a long time."
+
+She looked at him sideways, the first time she'd looked at him without the full formal attention of her assessment. Something in it was almost amused.
+
+"That's an honest answer," she said.
+
+"It's the true one."
+
+They walked in silence for a while. The road bent and Aldenmere appeared on the horizon, the noble quarters elevated, the merchant tier below, the lower districts at the base, everything arranged as it was supposed to be arranged.
+
+"I have work," she said. "My family has interests that require capable people, escort duties, resolving disputes among our vassals, the occasional more complicated matter. The pay is fair and the accommodation is in the city." She kept her eyes on the road. "There is also a physician on staff."
+
+Jianxin thought about four days of forest with nothing to read, and three days of road with merchants and drivers and Maren Vayne, who was the most interesting person he had encountered so far and worked for a family in that city ahead.
 
 "What kind of more complicated matters?" he said.
 
-"The kind that occasionally involves people like the ones you dealt with today." She kept her eyes on the road ahead. "And occasionally more difficult ones."
+"The kind that occasionally involves people like the ones you dealt with on the road." A pause. "And occasionally more difficult ones."
 
-He looked at Tianyi.
-
-Tianyi looked at the city and said nothing, which meant yes.
+He looked at Tianyi, who had been walking on the other side of the carriage and who looked back at him with the expression of someone who had already run the numbers.
 
 "Sure," Jianxin said. "We can do that."
 
