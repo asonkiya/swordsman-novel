@@ -32,15 +32,41 @@ He stood, drew the sword, and got to work.
 
 He started with the front-pusher's sword.
 
-He'd watched it on the road and now he swung it, or swung the memory of it, the same overhand cuts the bandit had thrown at the escort's guard, heavy and committed and a half-beat too eager. He ran the motion until his arm knew it, until the blade fell the same as the man's blade had fallen.
+He'd watched it on the road and now he swung it, or tried to, the same overhand cuts the bandit had thrown at the escort's guard, heavy and committed and a half-beat too eager. He ran the motion until his arm knew it, until the blade fell the same as the man's blade had fallen.
 
-The weight of it was wrong for someone trained. The whole shoulder going into a stroke that only needed the forearm, the kind of swing a man made when his arms had spent years on something heavier, an axe or a hoe or the haft of a cart. The tunic had been good cloth once, mended now with thread that didn't match. The boots resoled more than once. A man who'd come down in the world and been coming down for a while, who'd picked up a borrowed sword somewhere at the bottom of that fall and joined thirty other men on a road.
+It rang hollow.
 
-And in the fight his whole body had pointed past the escorts at the carriage. Not at the men between him and it. At the thing inside, which was wealth, which was the thing that had been taken from him, which he had apparently never stopped reaching for. The sword was only the nearest tool. He hadn't been fighting. He'd been reaching, the same reach he'd been making since the trade failed, and every stroke of his blade had been aimed past its target at something that wasn't there.
+Not the form. The form was correct. The motion had the right weight, the right angle, the shoulder going into it as the bandit's had. But it felt as though the sword was asking him: why.
 
-Jianxin swung again and the sword was different.
+Why this swing. Why this weight.
 
-A servant crossing the courtyard with an armload of linen glanced over at the boy practicing forms, and then slowed without meaning to. The boy was only swinging a sword. But there was something in it. The first strokes had been a young man going through motions, clean and empty. These were not empty. Each cut reached past where it landed, leaning toward something past the end of the blade, hungry in a way a sword had no business being, and the servant could not have said what was different but felt the difference and stood holding the linen a moment too long before moving on.
+He thought about the shoulder. The whole shoulder going into a stroke that only needed the forearm. He'd seen the Vayne escorts move, efficient, trained, every motion sized to its purpose. This hadn't been that. This was the swing of a man who had spent years driving something heavier than a sword, who had built his arms for a different tool and carried that building into a fight it was never shaped for. An axe maybe, or a hoe, or the haft of a cart.
+
+Why was a laboring man on that road.
+
+He swung again and let the question sit. Tianyi had said someone sent them. Thirty-two men didn't appear on a road by accident. They'd been paid. So this man had been given money to be there.
+
+What had he done with it.
+
+The blade was the first answer. He'd seen the checkpoint guards' steel and the convoy guards' steel and the Vayne escorts' steel. He had a gradient now. This man's blade had been nicked along the edge, the grip rewrapped badly over old cord, a sword bought from someone who needed to sell it rather than chosen for the hand that would use it. A man who had received an advance for a dangerous job and had not spent it on the tool that might keep him alive.
+
+Which meant he'd spent it on something he wanted more immediately.
+
+What had he wanted.
+
+He thought about the fight. The man's eyes had been red at the edges, not from the exertion. They'd been red before anything started, carrying a brightness of someone running on something. His movements had had an agitation underneath them, a tremor in the commitment, the kind that came from a body being pushed past its natural state. Not fear. Something taken.
+
+So: money spent, and spent recently, on something that cost enough to matter and burned fast enough to need replacing. Not food. The people in the lower districts who had been going without had shown it plainly, hollow cheeks, clothes hanging off shoulders that had been wider once, the kind of careful movement that came from a body rationing itself. This man had none of that. His shoulders had filled his tunic. His neck had been thick. His arms had the kind of bulk that came from years of consistent labor and consistent eating, not from scraping by. He'd been feeding himself fine. The money hadn't gone to survival.
+
+It had gone to pleasure. The kind that ran out and had to be bought again.
+
+And in the fight his whole body had pointed past the escorts at the carriage. Not at the men between him and it. At the thing inside. At money. The thing he kept spending faster than he could earn it, the thing he was on this road to get more of, the thing that had apparently been the organizing principle of his life for long enough that even his sword swings were reaching past their target toward it.
+
+He hadn't been fighting. He'd been reaching. The sword was only the nearest tool.
+
+Jianxin swung and the sword was different.
+
+A servant crossing the courtyard with an armload of linen glanced over at the boy practicing forms, and then slowed without meaning to. The boy was only swinging a sword. But there was something in it. The first strokes had been a young man going through motions, clean and empty. These were not empty. Each cut reached past where it landed, leaning toward something past the end of the blade, hungry with something a sword had no business carrying, and the servant could not have said what was different but felt the difference and stood holding the linen a moment too long before moving on.
 
 Jianxin didn't notice her. He was somewhere else, the courtyard thinned to almost nothing around him, a carriage at the end of every stroke that wasn't there, the want of a dead man bleeding faintly into the motion of his arm. Not vivid. A flavor, a lean, the ghost of another person's reaching. But it was his now, the thing he'd watched on the road folded down into the blade, ready to come back out when he called it.
 
@@ -90,14 +116,16 @@ Something changed in his bones.
 
 Not a sound. Not a sight. A pressure that had nothing to do with the air, felt somewhere below the skin, the specific sensation of the world tilting slightly toward one point. He'd felt something like it before, in childhood sparring, when the air around Tianyi would thicken and every strike would meet invisible resistance, when the ground seemed to answer his brother's stance and the wind seemed to know which way he wanted it to go. That had been a tilt. This was not a tilt.
 
-The qi in the courtyard was moving. Not violently, not visibly, but he could feel it in his sternum, in his back teeth, in the hand wrapped around the sword — every mote of it organizing itself toward the courtyard door the way iron filings organize toward a magnet, not pushed, just finding the direction it was always going to find. The grass near the door lay flat. The groom had stopped walking, his horse's ears back. The kitchen girls had gone quiet without knowing why.
+The qi in the courtyard was moving. Not violently, not visibly, but he could feel it in his sternum, in his back teeth, in the hand wrapped around the sword, every mote of it organizing itself toward the courtyard door, not pushed, just finding the direction it was always going to find. The grass near the door lay flat. The groom had stopped walking, his horse's ears back. The kitchen girls had gone quiet without knowing why.
 
 Jianxin lowered his sword and turned.
 
-Tianyi stood at the courtyard door, and the world around him was not the same world that filled the rest of the yard. The air answered him. The qi arranged itself in his presence the way it had always arranged itself, but denser now, more total, the fire in the nearby brazier bending faintly toward him without wind to explain it, the ground under his feet more present than the ground under anyone else's. He looked faintly tired and entirely himself.
+Tianyi stood at the courtyard door, and the world around him was not the same world that filled the rest of the yard. The air answered him. The qi arranged itself in his presence as it always had, but denser now, more total, the fire in the nearby brazier bending faintly toward him without wind to explain it, the ground under his feet more present than the ground under anyone else's. He looked faintly tired and entirely himself.
 
 "Fourth level," he said. "It went faster here. The qi is denser inside the walls."
 
 Jianxin looked at his brother and felt the weight of him in his own teeth and sternum, and understood that this was not simply Tianyi growing stronger.
 
 He had stepped into a different order of being. The world had already reorganized itself to acknowledge it, and Jianxin's bones had known before he turned around.
+
+For the first time in years, he knew with complete certainty that if they fought right now, he would lose. Not narrowly. Completely.
