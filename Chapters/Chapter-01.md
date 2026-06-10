@@ -60,7 +60,7 @@ One slept, his breath steady and warm. The other remained still, his presence su
 
 She looked down at them both, then lifted her eyes toward the Void. Her gaze pierced the layers of the abyss. Eventually, she fixed her attention on a realm.
 
-By the standards of realms, it was not a large one. Its shape, however, was strange. The entire world sloped inward, with raised edges surrounding a plain at its center. The mountain within it orbited no sun. Its skies held no stars. Even so, time moved. Seasons passed. Life continued. The rhythm of this world followed a single object, now resting halfway up the colossal slope.
+By the standards of realms, it was not a large one. Its shape, however, was strange. The entire world sloped upward toward its center, a colossal mountain rising from its edges. The mountain within it orbited no sun. Its skies held no stars. Even so, time moved. Seasons passed. Life continued. The rhythm of this world followed a single object, now resting halfway up the colossal slope.
 
 The emperor watched her and saw the weight in her eyes. He placed a gentle hand on her shoulder.
 
@@ -74,7 +74,7 @@ He sighed.
 
 She nodded. “Has the clan at least made sure that lunatic doesn’t pull them into the madness he’s planning.”
 
-***
+---
 
 In a small garden, two children sparred. The scene would have been heartwarming were it not for the terrifying power behind each blow.
 
@@ -131,5 +131,3 @@ Jianxin exhaled slowly, lowering his blade. “One day,” he said under his bre
 Tianyi gave no reply, but for an instant, a faint smile touched his lips.
 
 The wind shifted, and the garden fell silent once more as the two brothers slowly made their way back inside. Shoulder to shoulder, as they had always been.
-
-  

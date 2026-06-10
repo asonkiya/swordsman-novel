@@ -24,7 +24,7 @@ The flame held its shape without wavering. He tilted his palm slightly. The flam
 
 "Maybe you missed it."
 
-"I didn't miss it. The transition requires a specific kind of resistance, the framework pushing against an upper boundary and having to reconfigure around it. I would have felt that." He looked at Jianxin. "I think my comprehension was already so far past the boundary that by the time my Qi accumulation reached it, there was nothing left to resist. The framework had already been built on the other side."
+"I didn't miss it. The transition requires a specific kind of resistance, the comprehension pushing against an upper boundary and having to reconfigure around it. I would have felt that." He looked at Jianxin. "I think my comprehension was already so far past the boundary that by the time my Qi accumulation reached it, there was nothing left to resist. The understanding had already been built on the other side."
 
 Jianxin thought about this. "So the bottlenecks don't slow you down because you've already done the work before you arrive."
 
@@ -60,7 +60,9 @@ The chamber was on the upper floor, a long room with windows on the south side a
 
 The seating wasn't arbitrary. Each person's distance from Lord Aldric was a measure of their standing, the angles of the chairs calibrated to make some conversations easier and others harder. He'd seen the city arranged the same way from the carriage window.
 
-Lord Drevant came in first, a compact man who found his seat without looking for it. His eyes went to Lord Aldric, then to Casver, in that order.
+Cael came in without looking at his father. Not pointedly. He found his seat, set his things down, arranged himself correctly. But he'd been in the same room as Lord Aldric for less than a minute and hadn't acknowledged him once, which in this family, in this room, meant something had been said before the session that hadn't finished being said.
+
+Lord Drevant came in first among the vassals, a compact man who found his seat without looking for it. His eyes went to Lord Aldric, then to Casver, in that order.
 
 Venne Serrath arrived shortly after with papers under her arm, already arranging them before she'd fully sat down.
 

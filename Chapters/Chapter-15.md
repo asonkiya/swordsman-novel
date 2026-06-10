@@ -76,11 +76,13 @@ She was terrible at it. He almost said something, remembered she was twelve, and
 
 The family came in together.
 
-Lord Aldric first, the room turning toward him on its own. Lady Isara beside him, her smile arriving on time, her attention spread out evenly across the room with nothing left to accident. Aldren behind them, easy in a way he never was in the council chamber. Cael half a step out of the evening's rhythm, in the room without quite belonging to it. Maren last, and by the time she entered the evening was already running on something she'd set in motion hours ago.
+Lord Aldric first, the room turning toward him on its own. Lady Isara beside him, her smile arriving on time, her attention spread out evenly across the room with nothing left to accident. Aldren behind them, easy in a way he never was in the council chamber. Cael half a step out of the evening's rhythm, in the room without quite belonging to it. He had the look of a man who had made his position clear and been overruled and was now required to stand in a room celebrating the thing he'd argued against. Maren last, and by the time she entered the evening was already running on something she'd set in motion hours ago.
 
 Jianxin watched the room sort itself around each of them. It bent one way for Lord Aldric and another for his children. It bent for Maren too, in the small constant ways that meant she was the one running it, though no one in the room seemed to know that was what they were responding to.
 
 He read her in the doorway. The composure was complete. Underneath it, faint, was a woman watching a thing she'd built to see whether it would hold. It was holding, and she wasn't letting herself feel that yet.
+
+Cael was looking at her too. Not the same read. The same subject, a different answer. Whatever he'd said and lost, he hadn't finished losing it.
 
 He looked away before she felt him looking.
 
@@ -216,6 +218,20 @@ He let the silence sit where it was.
 
 Across the room, Drevant was still being careful with his eyes. She watched him a moment, and this time she wasn't bracing against him. She was reading a man who was going under and didn't want it seen, and a thing understood sat differently in her hands than a thing she'd been afraid of.
 
+"The Edrath delegation," Tianyi said. "Someone on their side will say something tonight. They usually do, at these occasions. A comment about standards, about what the house is presenting."
+
+She looked at him. "You expect it."
+
+"I've been watching the man by the east window for twenty minutes. He has opinions about the evening." He paused. "When it happens, Casver will use it. Whatever ground shifts tonight, he'll move on it by morning."
+
+She was quiet. "The dormancy provision."
+
+"Needs to be settled before he does. Not to stop the engagement. To ensure it doesn't hand him anything."
+
+"Then it needs to move faster than I planned."
+
+"Yes."
+
 "The provision your father stopped using," Tianyi said. "I want the older records. I think it lapsed earlier than you think. By the better part of a year, maybe."
 
 She went still. "If that's true—"
@@ -342,8 +358,24 @@ He hoped she'd remember it when she was old enough to use it.
 
 ---
 
-The party emptied slowly. Maren saw out the last of the guests, the family scattering by degrees, the candles guttering down in their holders. An attendant steered Lira toward bed, and at the door she turned and looked back at him once before she went.
+By the third pass the people nearest them had started to glance over. Not at Lira. At him. The boy who hadn't known the steps twenty minutes ago and was now leading. The boy who had no name anyone in this room could place, no house, no standing, no reason to be on this floor at all. The glances were not hostile. They were the glances of a room running its accounting, locating what didn't fit and noting it.
 
-The evening Maren had built to prove the house was steady had proven it. The walls held. Everyone went up to their rooms certain of where they stood.
+Lira didn't notice. She was talking, asking something about the mountains, and he answered and kept moving and felt the glances accumulate without doing anything about them.
 
-Upstairs, in the dark, a twelve-year-old lay awake turning over a thing she didn't yet have words for, and wouldn't for years.
+The comment came from near the door. Not whispered. Said at the volume of something meant to carry.
+
+"One does wonder what Lady Maren is thinking," the man said, "letting the help get familiar with the young lady of the house at a formal occasion." He had come with the Edrath delegation, minor family or senior attendant, someone whose function was to represent the standards of the house he traveled with. "If the Vayne household runs this loosely, Lord Edrath's family may want to reconsider whether the match suits their standing."
+
+The room heard it. These rooms always heard it.
+
+Lira heard it. Her hands tightened on his once, fast, and then she stepped behind him. Not a decision. The body finding cover before the mind had caught up. She had become the thing being talked about, and the person in front of her was the only solid thing in reach.
+
+He stood still and let her.
+
+Maren crossed the room. Not fast. Fast would have confirmed something. At the pace of a woman with somewhere to be, which happened to be here. She reached them and put herself between Lira and the room with the same motion she used for everything, smooth, inevitable, already done before anyone had decided to watch.
+
+She said something to the Edrath man that Jianxin didn't catch. The composure was total. Whatever it cost her, the room would not see it.
+
+Lira stood behind her sister's shoulder and felt the hands of the house close over her like water closing over a stone, quiet and total and without asking, and something planted itself in her chest that she had no name for yet. Not anger, not grief, not quite fear. Something that needed more years and more weight before it would become what it was going to become.
+
+"Though one does wonder what Lady Maren is thinking, letting the help get familiar with the young lady of the house at a formal occasion. If the Vayne household runs this loosely, Lord Edrath's family may want to reconsider whether the match suits their standing."

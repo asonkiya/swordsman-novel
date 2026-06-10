@@ -114,7 +114,13 @@ Garson had written like that. The reasoning moves because it has nowhere else to
 
 "The family's position. The marriage—"
 
-"I know what the marriage does."
+"House Edrath," Tianyi said.
+
+She looked at him.
+
+"The Edrath name comes up three times in the last year's correspondence index. The pattern was clear." He said it without inflection. "Old name. Witness-aligned. The match gives the family cover it can't produce on its own."
+
+Maren was quiet for a moment. "Yes."
 
 The room was quiet.
 
@@ -146,7 +152,7 @@ Tianyi looked at him, then at the closed council room door behind them, then for
 
 "You look like you disagree."
 
-"Partly." He kept walking. "But that's not what I'm thinking about."
+"Partly." He kept walking. "That's not what I'm thinking about."
 
 Tianyi looked at him. "Then what."
 
