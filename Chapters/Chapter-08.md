@@ -144,7 +144,7 @@ They walked in silence for a bit. Jianxin tried reaching for the birds and found
 
 "You counted."
 
-Tianyi said nothing, which meant yes.
+Tianyi said nothing.
 
 "The terrain has a consistent incline," Tianyi said, after a moment. "Barely perceptible but present."
 
@@ -154,7 +154,7 @@ Tianyi said nothing, which meant yes.
 
 "Or it's just a really big mountain," Jianxin said.
 
-"The scale would be unfathomably large. That's not possible." He filed it and kept walking. "Hills."
+"The scale would be unfathomably large. That's not possible on natural terrain." He filed it and kept walking. "Hills."
 
 Jianxin looked at the ground, which looked like ordinary ground. He'd grown up on this world his whole life and had stopped noticing the slope entirely. It was strange to have it pointed out.
 

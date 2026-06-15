@@ -36,7 +36,11 @@ He was already grinning. His shoulders dropped, his weight shifted forward onto 
 
 ---
 
-Tianyi came in from the side, unhurried, which confused the three men who peeled off to intercept him. By the time they understood that unhurried didn't mean slow, the earth beneath the carriage had shifted, anchoring its wheels, and a formation of wind qi had settled around it like a wall that wasn't quite visible. He dealt with the three men efficiently and took up a position between the carriage and the main body of the fight.
+Tianyi came in from the side, unhurried, which confused the three men who peeled off to intercept him. By the time they understood that unhurried didn't mean slow, the earth beneath the carriage had shifted, anchoring its wheels, and a formation of wind qi had settled around it like a wall that wasn't quite visible.
+
+He did not so much meet the three men as rearrange the ground they stood on. The first found his lead foot sunk to the ankle in dirt that had been packed hard a breath ago, and while he was working that out the air in front of his face thickened and stopped being something he could easily breathe. The second came in fast, and the wind took the line of his charge and bent it a few degrees, enough that he arrived where Tianyi was not, and the earth came up to meet him there. The third had watched the first two and stopped on his own, and Tianyi regarded him until he concluded that the carriage was someone else's problem. None of it looked like fighting. It looked like a man setting right a space that had been arranged wrong, and the men in it were part of what was wrong.
+
+He took up a position between the carriage and the main body of the fight.
 
 The woman watched him from the carriage door. He didn't look at her. He was busy.
 
@@ -44,43 +48,49 @@ The woman watched him from the carriage door. He didn't look at her. He was busy
 
 The moment Jianxin stepped onto the road the world before his eyes changed.
 
-Not the road. Not the men. Those were the same. But layered over them, running through them like rivers through stone, was something he had never seen in four days of forest and had been waiting for without knowing he was waiting. Every person on the road was carrying something. Not steel, not weight. Intent. The direction of a will moving through a body toward a conclusion, and he could see all of them at once, every current and eddy of the whole moving sea, the way you hear every voice in a crowd once you know what a crowd sounds like.
+Not the road. Not the men. Those were the same. But layered over them, running through them like rivers through stone, was something he had never seen in four days of forest and had been waiting for without knowing he was waiting. Every person on the road was carrying something. Not steel, not weight. Intent. The direction of a will moving through a body toward a conclusion, and he could see all of them at once, every current and eddy of the whole moving sea, and not one of them lost in the rest.
 
 The big one at the front was aimed past the escorts like they were inconvenient furniture, his entire being pointed at the carriage. The one on the left flank was half gone already, his body still moving but his heart already measuring the distance to the trees. The young one at the right was committed to a lunge that hadn't left his body yet, intent already arrived at its destination while his feet were still catching up.
 
 Jianxin's sword came out and he moved.
 
-He moved the way water moves, not through resistance but around it, finding the momentary stillpoints between one current and the next, the brief silences where one will had finished and the next had not yet begun. His blade arrived in those silences. It was already done before the men knew he'd been there.
+He moved the way water moves, not through resistance but around it, finding the stillpoints between one current and the next, the brief silences where one will had finished and the next had not yet begun. His blade could arrive in those silences before the men knew he had been there.
 
-The young one saw him at the last moment. One.
+The first one taught him there was a difference between arriving and finishing.
 
-Then he was elsewhere, slipping past a current that hadn't crested yet, and an old general's footwork carried him through the gap it left. Two. A scholar-swordsman's guard redirected something coming from the right without force, without pause, his eyes already reading the next flow. Three.
+The young one's lunge passed the point of recall and Jianxin was already inside it, in the stillpoint the boy's own commitment had opened. The blade had only to fall. And for the length of a breath it didn't.
 
-A patient woman's arc moved his sword arm. Four.
+He had meant to step the blade into the gap and be gone. But the reading didn't stop at the lunge. It went past it, into the boy himself, a whole person, shifting and unfinished, a life still in the middle of deciding what it would be. All of it about to stop because Jianxin's arm was already moving. He had not once thought, until this instant, about what the blade was for.
 
-He took one hit, a glancing blow from someone whose body had moved on reflex. Reflex had no current in it, no direction he could read and step around. He noted it and moved.
+His arm balked. Half a beat, no more.
+
+It was enough. A cut he'd already discounted caught him across the ribs. He was meant to be elsewhere and wasn't. The pain arrived and brought the road back with it, and the thing that had to happen happened. The blade went in beneath the arm, drew clear, and the boy folded around the space where it had been. One.
+
+He was elsewhere before the body landed. An old general's footwork carried him through a gap and the man who'd made it took the edge across the neck before his swing finished. Two. A cut came from the right; a scholar-swordsman's guard turned it aside without pause, the same motion carrying his point back through the man who'd thrown it. Three. A patient woman's arc, slow and certain, and the fourth man walked onto it himself. Four.
 
 Then the rhythm changed.
 
-Six currents that had been separate drew together into one, a tide where there had been a river, and the stillpoints he'd been moving through closed. The flow pressed back against him from every direction at once, coherent and insistent, no gaps between the beats.
+Six currents drew together into one, a tide where there had been a river. The stillpoints closed. The flow pressed from every direction at once, coherent, no gaps.
 
-He stopped. Let the tide push against him without pushing back. Felt the shape of it.
+He stopped. Let it push. Felt the shape of it.
 
-Tianyi's wind arrived in two lines, not a strike but a question, and two of the six had to answer it. Their currents pulled sideways. The tide lost its coherence for a single beat.
+Tianyi's wind arrived in two lines, not a strike but a question, and two of the six had to answer it. The tide lost its coherence for a single beat.
 
 Jianxin went with it.
 
-He moved through the opening the way water moves through a crack in stone, not forcing, just finding the line of least resistance and following it all the way through. The six became five became three became separate currents again and separate currents he could read and reading them he moved and the road received what the road received.
+He took the line it gave him before it could close. The first man was still turning toward the wind when Jianxin reached him. Five left. He split the next two before they could close the gap. Three. And three men with three separate wills were just men, each one legible, and he read them and moved and the road received what the road received.
 
 The man on the horse made the same calculation Jianxin had read on the left-flank man's face before the fight had properly started.
 
-They broke. One current turned and the rest followed, the tide reversing faster than it had formed. The horse turned. Someone ran. Then the currents were all running the same direction, away, and the ones still standing had nothing left in them, only the absence of current, and absence meant they were already gone even if their feet hadn't caught up yet.
+They broke. One turned and the rest followed, faster than the tide had formed. The horse went. Someone ran. The ones still standing had nothing left in them. The fight was already over even if their feet hadn't caught up yet.
 
 The last of them found the treeline.
 
 The road went quiet.
 
-Jianxin lowered his sword. His ribs ached where the reflex hit had landed and he rolled his shoulder and looked at the treeline and felt the satisfaction of a thing done that had needed doing.
+Jianxin lowered his sword. His ribs ached where the hit had landed, and he rolled the shoulder, and looked at the men on the road.
+
+The reading was gone out of them. That was the part he hadn't braced for, not the bodies, but the silence where the currents had been, all those wills that had each been moving somewhere and now moved nowhere and would not begin again. He had felt it reach for him once already, in the half-beat before the first of them, and he had set it aside because the alternative was dying with it. Now there was nothing left to set it aside for. He stood with it a moment. It was not the clean satisfaction he had expected, and it was not nothing, and he did not have the shape of it yet.
 
 Tianyi appeared at his shoulder. "Fourteen down. The rest are gone."
 

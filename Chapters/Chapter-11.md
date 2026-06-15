@@ -58,7 +58,11 @@ The guard waited.
 
 "That's it," Jianxin said.
 
-The guard looked at him, then at Tianyi, then at the carriage ahead. He wrote something, crossed it out, wrote something else.
+The guard looked at Tianyi.
+
+"Tianyi," Tianyi said.
+
+The guard looked at him, then at the carriage ahead. He wrote something, crossed it out, wrote something else.
 
 "Family?"
 
