@@ -1,0 +1,4 @@
+# Commit only the current manuscript; ignore everything else in this folder.
+/*
+!/.gitignore
+!/Manuscript/
